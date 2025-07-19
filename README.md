@@ -17,7 +17,6 @@
 
 - 📫 How to reach me **mouleendraaithi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gKhws2uwZnwn6TzawsE_IAbmM9-b8NYx/view?usp=drive_link](https://drive.google.com/file/d/1gKhws2uwZnwn6TzawsE_IAbmM9-b8NYx/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
